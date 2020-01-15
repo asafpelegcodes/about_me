@@ -5,6 +5,7 @@
 * Don't confuse passion with being upset
 * Don't mind being wrong
 * Enjoy playing devil's advocate
+* I have a dry sense of humor
 
 ## How I like to work
 * Love learning and doing things the hard way
